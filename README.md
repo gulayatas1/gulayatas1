@@ -1,1 +1,1 @@
-kendime koydugum chalenge
+kendime koydugum challenge
